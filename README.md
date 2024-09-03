@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on ... Your Mom
 - 📫 How to reach me ... Nice Try Overlords
 
-- ⚡ Fun fact: ... "Spartans, Ready Your Breakfast And Eat Hardy, For Tonight We Dine In Hell!"  Leonidas
+- ⚡ Fun fact: ...
+
+- "Spartans, Ready Your Breakfast And Eat Hardy, For Tonight We Dine In Hell!"  Leonidas
 - King Leonidas: Spartans! Prepare for glory!
 
 - Daxos: Glory? Have you gone mad? There is no glory to be had now! Only retreat, or surrender or death!
